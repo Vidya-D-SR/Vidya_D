@@ -77,8 +77,8 @@
 ## 📫 Let's Connect
 
 - 🔗 LinkedIn: [linkedin.com/in/vidya-d-887271386/](https://www.linkedin.com/in/vidya-d-887271386/)  
-- 💻 GitHub: [github.com/vidyad18](https://github.com/vidyad18)  
-- 📬 Email: [vidyavk1311@gmail.com](mailto:vidyavk1311@gmail.com)  
+- 💻 GitHub: [github.com/Vidya-D-SR/Vidya_D](https://github.com/Vidya-D-SR/Vidya_D)  
+- 📬 Email: [vidyad9164@gmail.com](mailto:vidyavk9164@gmail.com)  
 
 ---
 
